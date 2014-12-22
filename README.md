@@ -35,11 +35,17 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The myrrour of modestie wherein appeareth as in a perfect glasse howe the Lorde deliuereth the innoc
+
+1. To the Gentle Readers health.
+
+1. TO THE RIGHT HONORABLE AND VERtuous Ladie, the Ladie MARGARET, Countesse of Darbie, Robert Greene wisheth happie health, with increase of Ho•…or and vertue.
+
 #####Body#####
-The myrrour of modestie wherein appeareth as in a perfect glasse howe the Lorde deliuereth the innoc
+
+1. A PRINCELIE MIRROVR OF PEEREles modestie.
+
 #####Back#####
-The myrrour of modestie wherein appeareth as in a perfect glasse howe the Lorde deliuereth the innoc
+LONDON Printed by Roger VVard dwelling a•… the signe of the Talbot, neere vnto Holburne Conduit. 158
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
